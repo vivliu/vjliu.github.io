@@ -1,2 +1,0 @@
-# vjliu.github.io
-WEBSITE UNDER CONSTRUCTION
